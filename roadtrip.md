@@ -61,6 +61,7 @@ Here are some interesting sightseeing places and restaurants in a summer road tr
  - Pittsburgh: Primanti Brothers, The Strip District, and Hofbräuhaus Pittsburgh
  - Philadelphia: Reading Terminal Market, Pat's King of Steaks, and Jim's Steaks
  - New York City: Katz's Delicatessen, Shake Shack, and Magnolia Bakery
+
 This is just a suggested itinerary, and you can customize it to fit your interests and budget. With so much to see and do, you're sure to have a memorable summer road trip between Chicago and Boston!
 
 ## Carlos Th
@@ -87,6 +88,7 @@ Here are some other great locations to look at Niagara Falls from the US side:
  - Terrapin Point: This point is located on the Goat Island and offers stunning views of Horseshoe Falls.
  - Whirlpool State Park: This park is located about 2.5 miles north of the Rainbow Bridge and offers views of the Niagara Gorge and the Whirlpool Rapids.
  - Three Sisters Islands: These three islands are located in the Niagara Gorge and offer up-close views of the Horseshoe Falls.
+
 No matter where you choose to view Niagara Falls from, you are sure to be amazed by its beauty and power.
 
 ## Carlos Th
@@ -145,6 +147,7 @@ Here are the requirements for a Canadian visa for Colombian citizens:
  - Proof of funds to cover your stay in Canada.
  - A letter of invitation from a Canadian citizen or permanent resident.
  - Proof of ties to your home country, such as a job, property, or family.
+
 If you are planning to visit Canada for tourism, you can apply for a visitor visa. A visitor visa allows you to stay in Canada for up to six months. If you are planning to study or work in Canada, you will need to apply for a student visa or a work permit.
 
 You can find more information about Canadian visas on the Government of Canada website.
@@ -176,6 +179,7 @@ Here are some things to keep in mind when driving from Chicago to Erie:
  - There are a few tolls on the way, so be prepared to pay them.
  - The weather can be unpredictable, so be sure to check the forecast before you go.
  - There are a few rest stops along the way, so be sure to stop and stretch your legs every few hours.
+
 I hope this information is helpful!
 
 ## Carlos Th
@@ -207,6 +211,7 @@ Here are some nice and high-regarded restaurants between Toledo and Cleveland, o
     - The Flying Fig
     - Momocho
     - Lola
+
 These restaurants offer a variety of cuisines, from Italian to American to Mexican. They are all highly regarded by locals and tourists alike. Lunch prices at these restaurants range from $10-$50, so there is something for everyone.
 
 Here are some more details about each restaurant:
@@ -277,6 +282,7 @@ he following options are under $20 per person:
  - **Cleveland**
     - Momocho (Lunch Menu)
     - Lola (Lunch Menu)
+
 These restaurants offer a variety of cuisines, from Italian to Mexican. They are all highly regarded by locals and tourists alike. Lunch prices at these restaurants range from $10-$20, so there is something for everyone.
 
 Here are some more details about each restaurant:
@@ -340,6 +346,7 @@ The best deep-dish pizza in Chicago is a matter of opinion, but some of the most
  - The Art of Pizza
  - Burt's Place
  - Uncle Jerry's Pizza Company
+
 These restaurants all offer a variety of deep-dish pizza options, so you're sure to find something to your taste. They also offer a variety of other Italian dishes, so you can make a whole meal out of your visit.
 
 Here are some more details about each restaurant:
@@ -402,6 +409,7 @@ Here are some lunch and dining options in the Buffalo and Niagara Falls area tha
     - The Top of the Falls Restaurant (American)
     - The Terrace Restaurant (American)
     - The Whirlpool State Park Restaurant (American)
+
 These restaurants offer a variety of cuisines, from American to Italian to Mexican. They are all highly regarded by locals and tourists alike. Lunch prices at these restaurants range from $10-$20, so there is something for everyone.
 
 Here are some more details about each restaurant:
@@ -553,6 +561,7 @@ Niagara Falls is a must-see for any visitor to the Northeast. The falls are one 
 Rochester is a vibrant city with a lot to offer visitors. The city is home to a number of museums, including the Strong National Museum of Play, the Rochester Museum & Science Center, and the George Eastman Museum. Rochester is also home to a number of parks and outdoor spaces, including Highland Park and Seneca Park Zoo.
 
  - **Syracuse
+
 Syracuse is a city with a rich history and culture. The city is home to a number of historical landmarks, including the Erie Canal Museum, the Onondaga Historical Association Museum, and the Everson Museum of Art. Syracuse is also home to a number of festivals and events throughout the year, including the New York State Fair and the Great New York State Fair.
 
  - **Utica**
