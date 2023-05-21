@@ -1,4 +1,5 @@
-Write a three paragraph alternate history story on what if Louis XVI managed to escape to Austria during the French revolution.
+## Carlos Th
+> Write a three paragraph alternate history story on what if Louis XVI managed to escape to Austria during the French revolution.
 
 ## ChatGPT
 In an extraordinary turn of events during the tumultuous era of the French Revolution, King Louis XVI of France defied all odds and successfully escaped to Austria. Fleeing from the clutches of the revolutionaries, he found refuge in the neighboring country, far from the guillotine's blade. With his unexpected survival, the fate of France and Europe took an unforeseen path.
