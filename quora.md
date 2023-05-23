@@ -71,9 +71,7 @@ As of my knowledge cutoff in September 2021, I cannot provide specific informati
 It's important to note that the specific circumstances and reasons for abstentions can vary from country to country. Some possible reasons for abstentions or non-participation in a particular resolution could include:
 
  1. **Prioritization of other issues:** Governments may have different priorities and may choose to focus their attention and resources on other matters at the time.
-
-Concerns about the resolution's wording or potential implications: Countries might abstain if they have reservations about specific aspects of the resolution, such as its language, scope, or potential impact on their domestic policies.
-
+ 1. **Concerns about the resolution's wording or potential implications:** Countries might abstain if they have reservations about specific aspects of the resolution, such as its language, scope, or potential impact on their domestic policies.
  1. **Diplomatic considerations:** Some countries may abstain to avoid taking a stance that could strain diplomatic relations or create conflicts of interest with other countries.
  1. **Political considerations:** Domestic political factors, public opinion, or internal divisions within a government can also influence voting decisions.
 
@@ -114,9 +112,7 @@ The "God of the gaps" approach refers to the notion of attributing unexplained p
 When it comes to reconciling science and theology without relying on the "God of the gaps" approach, there are a few perspectives and approaches:
 
  1. **Complementarity:** Many people view science and theology as addressing different aspects of human experience and knowledge. Science explores the natural world and seeks to explain physical phenomena through empirical observation and experimentation, while theology explores questions of meaning, purpose, and the nature of ultimate reality. Instead of seeing them as contradictory, they can be seen as complementary ways of understanding the world.
-
-Non-Overlapping Magisteria (NOMA): This perspective, put forth by Stephen Jay Gould, suggests that science and religion occupy separate domains of inquiry and authority. Science deals with empirical facts about the natural world, while religion deals with questions of ethics, values, and purpose. According to this view, conflicts arise only when one domain oversteps into the other's territory.
-
+ 1. **Non-Overlapping Magisteria (NOMA):** This perspective, put forth by Stephen Jay Gould, suggests that science and religion occupy separate domains of inquiry and authority. Science deals with empirical facts about the natural world, while religion deals with questions of ethics, values, and purpose. According to this view, conflicts arise only when one domain oversteps into the other's territory.
  1. **Integration:** Some individuals seek to integrate scientific and theological perspectives by exploring how scientific discoveries can inform and deepen their understanding of religious beliefs. This approach involves interpreting religious texts and doctrines in light of scientific knowledge while maintaining the core tenets of one's faith.
 
 It's important to note that different individuals and religious traditions have diverse perspectives on the relationship between science and theology. Some may reject the need for reconciliation, viewing them as separate and unrelated realms, while others may actively engage in dialogue to find harmony between the two. The specifics of reconciling science and theology can vary based on personal beliefs and interpretations.
